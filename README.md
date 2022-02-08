@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JussilaMoonsoftOy
-- 👀 I’m interested in Softare reselling
+- 👀 I’m interested in Software reselling
 - 📫 How to reach me: jjussila@moonsoft.fi & +358 45 88 64 888
 
 <!---
